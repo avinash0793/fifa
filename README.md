@@ -11,3 +11,6 @@ gareth bale
 lewandowski
 bappe
 marcello
+benzema
+ramos
+pique
