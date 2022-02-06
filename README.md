@@ -7,6 +7,10 @@ ibrahimovic
 zinadine zidane
 ronaldinho
 neymar
+tony croos
+muller
+nani
+rooney
 gareth bale
 lewandowski
 bappe
